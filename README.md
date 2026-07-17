@@ -22,8 +22,6 @@ Yukito Minakami es despertado por su amiga de la infancia, Kotomi Wakatsuki, per
 
 Escritor: SCA-JI
 
-Director: Washimi Tsutomu
-
 Arte y diseños de personaje: Motoyon
 
 Música: Matsumoto Fuminori (szak), ryo, viewtorino, H.B Studio, Time Bandit
